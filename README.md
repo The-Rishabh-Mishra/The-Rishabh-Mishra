@@ -5,7 +5,7 @@
 - 📫 How to reach me:  
   - Email: rishabh.mishra.knit@gmail.com  
   - LinkedIn: (www.linkedin.com/in/rishabh-mishra-046966330)  
-  - YouTube: [Wild Moments](https://www.youtube.com/@WildMoments) – My channel where I share stories of animal rescue and nature conservation powered by AI.  
+  - YouTube: [Wild Moments](www.youtube.com/@WildMoments-2025) – My channel where I share stories of animal rescue and nature conservation powered by AI.  
 - 😄 Pronouns: He/Him  
 - ⚡ Fun fact: When I’m not coding or studying, you’ll find me playing badminton, solving puzzles, or capturing nature life on camera.  
 
